@@ -1,0 +1,1 @@
+Goal: List & analyse the NGOs ecosystem in Portugal to understand the most effective charities. To highlight the Milhares de ONGs that are doing an amazing job but are invisible. To increase the number of donations by citizens to effective charities.
